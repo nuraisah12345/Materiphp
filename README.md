@@ -1,0 +1,10 @@
+LATIHAN 1
+![Screenshot (24)](https://github.com/nuraisah12345/Materiphp/assets/133072427/5e13d973-6220-449d-aca5-3bfcaad4fd29)
+LATIHAN 2
+![Screenshot (25)](https://github.com/nuraisah12345/Materiphp/assets/133072427/a9fce7b5-62b5-48d1-aa6d-ce2d94f93087)
+LATIHAN 3
+![Screenshot (26)](https://github.com/nuraisah12345/Materiphp/assets/133072427/b5d2fc3f-f85d-4f6b-b6ce-0bef77bb20dc)
+LATIHAN 4
+![Screenshot (27)](https://github.com/nuraisah12345/Materiphp/assets/133072427/0b92f685-b1a2-40da-9fc6-54b378803bf9)
+LATIHAN 5
+![Screenshot (28)](https://github.com/nuraisah12345/Materiphp/assets/133072427/e6d3a442-76cd-4eab-bce6-707d3d9f7e80)
